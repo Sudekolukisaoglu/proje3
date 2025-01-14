@@ -1,1 +1,8 @@
-# proje3
+![Ekran Alıntısı](https://github.com/user-attachments/assets/18b7abb7-158c-49b4-b829-342aeaaa9f44)
+![Ekran Alıntısı](https://github.com/user-attachments/assets/c8269b97-dd02-4d79-8e65-7f01d8e4c0bd)
+![Ekran Alıntısı](https://github.com/user-attachments/assets/cb1f59b1-2877-48c6-8419-02dc1653f477)
+![Ekran Alıntısı](https://github.com/user-attachments/assets/327e7b37-f0b9-4938-954f-277dbb6e0f6c)
+![Ekran Alıntısı](https://github.com/user-attachments/assets/ac590bd9-0b1f-4978-8803-56c52a4caadb)
+![Ekran Alıntısı](https://github.com/user-attachments/assets/b4a39d73-20ff-4c17-a677-3acb6f4326f1)
+![Ekran Alıntısı](https://github.com/user-attachments/assets/2325abcd-2559-4704-b802-9a4e69ea951f)
+![Ekran Alıntısı](https://github.com/user-attachments/assets/0f9e85a9-9996-4ede-9aa4-95fec8d9ab75)
